@@ -1,4 +1,6 @@
-# The Inner Room — Robert Tilford's own store shelf
+# Tilford's Free Shelf
+
+## The Inner Room — free app download
 
 **The Secret Teachings of Jesus — The Inner Room**, by Robert Tilford.
 Free. No account, no ads, no testers, no gate. Download the APK and install it.
